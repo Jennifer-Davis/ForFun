@@ -1,0 +1,2 @@
+# ForFun
+Learning New Things
